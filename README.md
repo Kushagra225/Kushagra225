@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Kushagra225
+- 👀 I’m interested in Python 
+- 🌱 I’m currently learning many things.
+- 📫 How to reach me on my email: hardykushagra2003@gmail.com
+- See yaa!
